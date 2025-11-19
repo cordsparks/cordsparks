@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..learning as many languages as I can.
 - 🌱 I’m currently learning ..python.
 - 💞️ I’m looking to collaborate on .React..
-- 📫 How to reach me .instagram @bobbymegan13..
+- 📫 How to reach me .instagram @whos_3os
 - 😄 Pronouns: .she/her..
 - ⚡ Fun fact: am only 16...
 
